@@ -3,3 +3,4 @@ I like [orange](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.o
 I am confuseddddd
 hi
 but why do u like oranges 
+and do u like shyanne u can talk about her as a story idea vwr ygood uwu
